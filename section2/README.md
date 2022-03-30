@@ -43,8 +43,16 @@ Read/watch one or both of the following:
 Then, consider on the following questions. We will ask you to share some of these responses at the end of this section.
 
 - What are two points from the article or video that either resonated with you, or were brand new to you?
+
+Althought I had heard the term before, I don't think I knew exactly what "Growth Mindset" was as clearly as described in the video. I do feel as if I have been practicing this for years every since I began my journey with mindfulness. This practice taught me that life is just that, a practice. I learned to be more patient with myself and forgive myself when my skill set in this area has become a bit dull. I am finding myself on an almost daily rollercoaster this last week starting Turing. Going from feeling stupid for not knowing everything immediately to forgiving myself for getting so frustrated. I am trying to improve my skills when it comes to working with myself, rather than making myself work in a fashion of 'how I think I should'.
+
 - In which ways do you currently demonstrate a Growth Mindset? In which ways do you _not_?
+
+Currently I am recognizing when I'm in a fixed mindset, getting frustrated or panicky quickly, and realizing it's time to step away for a short break. I am working on slowing down my frantic mind to be more able to focus on one thing rather than panic about it. When I panic or get frustrated my eyes and mind begin to dart around the screen not finishing a thought or being fully present in what I'm doing.
+
 - What is something you are good at or knowledgeable at now, that you once weren't? How did you get those skills/knowledge? Was it hard at some point?
+
+I worked at Starbucks for 5 and a half years, mostly as a Shift Supervisor. I remember when I started being in awe of my senior partners and managers and feeling like I would never know that much or be able to handle issues as easily. Eventually I became the 'Go-To-Person' for any and all issues. I knew how to fix machines without calling technicians, how to calm almost any customer and was highly praised for creating a caring, supportive and hardworking culture in my stores. I accomplished this by recognizing talented coworkers and leaders, watching and listening to how they handled things and then trying to model that behavior myself. Kind but firm was always my motto. There were many points when this was very hard. I just kept trying to show up the best I could. If I felt like I sucked one day, the next day (or week) would be better.
 
 ## Part B: Conditionals
 
