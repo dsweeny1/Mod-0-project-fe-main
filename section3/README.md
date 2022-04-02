@@ -40,8 +40,11 @@ One challenge learners in a new environment/content area face is feeling like th
 So this week, we would like you to start self-monitoring your progress. Before you start on the technical work, reflect back on how the project has gone so far.
 
 - Have the time estimates matched up with your experience?
+- My time estimates have relatively matched up so far. Sometimes taking a bit longer when I get stuck and sometimes taking a shorter amount of time.
 - When you sit down to start working, do you have a clear goal of what you want to accomplish and in how much time? If so, how aligned is that to what actually happens?
+- At first I found myself bopping around too much because I hadn't planned my goals well enough. I have adjusted my approach and am finding I am far more productive when I sit down with a plan of what exactly to focus on.
 - How do you work best - in 2 hour blocks, 4 hour blocks, etc? Do you take breaks regularly? Do you have a system to hold yourself accountable to taking breaks?
+- I am definitely working on getting better at taking breaks so I don't flood my brain. I find a break is very helpful for my productivity and focus at the 2 hour mark.
 
 You've probably heard of the Pomodoro Technique in Mod 0 classes (and elsewhere, maybe!). During this final section of the project, we are going to ask that you follow this technique. Please read about it [here](https://www.dovico.com/blog/2020/08/26/the-pomodoro-technique-how-to-manage-your-work-time-and-flow-the-easy-way/).
 
